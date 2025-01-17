@@ -8,5 +8,5 @@
 ### Boss harc videó
 [Boss harc bemutató](https://imgur.com/a/VXWgHH1)
 
-###Gameplay
+### Gameplay
 [gameplay a játékból](https://imgur.com/a/k3I56Gx)
